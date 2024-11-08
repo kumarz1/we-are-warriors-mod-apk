@@ -18,7 +18,7 @@ Explore the distinctive features that make the **MOD APK version** of this game 
 - **Mod Menu Customization**: The mod menu offers unique gameplay modifications to suit your strategy style.
 - **In-Game Currency**: Use in-game currency effectively to upgrade and expand your army without limitations.
 
-## Gameplay of We Are Warriors MOD APK Version
+## Gameplay of We Are Warriors MOD APK
 
 The **We Are Warriors MOD APK version** adds extra elements to enhance your strategy.
 
@@ -57,7 +57,7 @@ The **We Are Warriors MOD APK version** has gained popularity among fans of stra
   
 Young players love the strategic possibilities in the **We Are Warriors MOD APK unlimited everything** version.
 
-## Download We Are Warriors MOD APK Version – Unlimited Everything & Mod Menu
+## Download We Are Warriors MOD APK Unlimited Everything & Mod Menu
 
 Are you ready to dominate every battle across the ages? The **We Are Warriors MOD APK version** provides unlimited resources, game-changing upgrades, and a flexible mod menu for endless tactical possibilities. Download the game now to experience the thrill of historical combat and resource management with all the advantages.
 
